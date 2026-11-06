@@ -6,6 +6,6 @@ Paulina Ugalde Carreno
 
 Luis Fernando Talavera Rivera
 
-Nathalie :D
+Nathalie Álvarez Hernández
 
 Andres Eduardo Arciniega Arellano
